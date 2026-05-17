@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-RECJ701002HJCYRH04
+RECJ701002HJCYRH04
